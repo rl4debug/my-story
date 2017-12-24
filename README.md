@@ -1,0 +1,1 @@
+# Cảm xúc tại mỗi thời điểm trong cuộc sống của tôi. 1Gb dữ liệu cho phép của Github :D.
